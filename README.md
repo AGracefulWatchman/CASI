@@ -12,26 +12,28 @@ Here is our application, send it to, CASIvetting@Protonmail.com
 
 1. What is your full legal name? 
 
-2. What economic policies do you support? Write a couple sentences why.
+2. Were you reccomended to us by a current group member? If so, who?
 
-3. What social values and policies do you support and why?
+3. What economic policies do you support? Write a couple sentences why.
 
-2. Describe your political ideology, give a defense of it in a few sentences. 
+4. What social values and policies do you support and why?
 
-3. What is your religion? Please give a definitive defense on why you believe it. 
+5. Describe your political ideology, give a defense of it in a few sentences. 
 
-4. What is your nationality?
+6. What is your religion? Please give a definitive defense on why you believe it. 
 
-5. What do you believe is the greatest threat to your country? 
+7. What is your nationality?
 
-6. What are some proactive solutions to face what is to come?
+8. What do you believe is the greatest threat to your country? 
 
-7. Please link all your social media accounts including YouTube if applicable. 
+9. What are some proactive solutions to face what is to come?
 
-8. Are you able to purchase a firearm?
+10. Please link all your social media accounts including YouTube if applicable. 
 
-9. Describe yourself in a paragraph or less. 
+11. Are you able to purchase a firearm?
 
-10. What is your current employment?
+12. Describe yourself in a paragraph or less. 
 
-11. Do you believe some races are superior to others? 
+13. What is your current employment?
+
+14. Do you believe some races are superior to others? 
